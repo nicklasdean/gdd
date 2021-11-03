@@ -1,3 +1,2 @@
-- Content
-  - [Introduction](introduction.md) 
+- [Introduction](introduction.md) 
 
