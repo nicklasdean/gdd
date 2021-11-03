@@ -11,5 +11,9 @@
 
 
 
+**You may be invited for an interview after applying - please be aware if your KEA-mail after applying**
+
+
+
 **For any questions: NIFR@KEA.dk**
 
