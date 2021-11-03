@@ -15,5 +15,12 @@
 
 
 
+Requirements:
+
+- Valid Passport by December 2021
+- Corona pass (Vaccination)
+
+
+
 **For any questions: NIFR@KEA.dk**
 
